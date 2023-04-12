@@ -7,4 +7,3 @@
 - 💬 Ask me about any Tech related stuff. 
 - 📫 How to reach me: Linkedin - iammim.
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: 3 cup of coffees everyday.
